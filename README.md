@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yejra Kommu
-- 👀 I’m interested in cloud engineer
+- 👀 I’m interested in clouD
 - 🌱 I’m currently looking for Devops Fresher role
 - 💞️ I’m looking to collaborate as a Devops engineer fresher
 - 📫 How to reach me 9100864808 or yejrakommu808@gmail.com
